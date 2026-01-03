@@ -79,7 +79,7 @@ Vポイントは[WAONポイントに交換](https://t-point.tsite.jp/store/list/
 
 多くの交換先が**1ポイント5円未満**なので、ポイント価値を最大化したいならグローバルポイント Wallet一択です。
 
-現在、**[現金最大20,000円＋10,000円分ポイント](https://www.bk.mufg.jp/tsukau/credit/lp/credit_cp_202512/index.html)**の大型キャンペーンも実施中。
+三菱UFJカードは2026年3月31日まで**[現金最大20,000円＋10,000円分ポイント](https://www.bk.mufg.jp/tsukau/credit/lp/credit_cp_202512/index.html)**の大型キャンペーンを実施中。
 
 [三菱UFJ銀行のキャンペーンページ](https://www.bk.mufg.jp/info_cam/index.html)に他の高還元キャンペーンも載っているので確認してみてください。
 
