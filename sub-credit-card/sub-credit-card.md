@@ -166,6 +166,6 @@ https://note.com/tokiya_jikyu/n/n6378399dde68
 
 https://note.com/tokiya_jikyu/n/n2835cbf6c293
 
-あなたのおすすめサブクレカも、ぜひコメントで教えてください。
+ご意見、ご感想はぜひコメントしてください。
 
 スキ・フォローも励みになります。

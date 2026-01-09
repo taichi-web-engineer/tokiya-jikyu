@@ -118,6 +118,6 @@ https://note.com/tokiya_jikyu/n/ncde03e12e83c
 
 https://x.com/tokiya_jikyu
 
-あなたのおすすめポイントサイトも、ぜひコメントで教えてください。
+ご意見、ご感想はぜひコメントしてください。
 
 スキ・フォローも励みになります。

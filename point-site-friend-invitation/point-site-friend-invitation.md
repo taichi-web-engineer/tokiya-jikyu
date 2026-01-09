@@ -181,3 +181,7 @@ https://ecnavi.jp/invite/?id=7xhcv
 
 - ワラウ  
 https://www.warau.jp/friend/reg/aQ8B
+
+ご意見、ご感想はぜひコメントしてください。
+
+スキ・フォローも励みになります。
